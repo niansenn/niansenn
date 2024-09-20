@@ -1,4 +1,3 @@
-Hey im am niansenn_
-I coding games 
-
-:)
+Niansen 
+- Code & Chill 
+- DM for projects 🥇
